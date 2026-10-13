@@ -1,8 +1,13 @@
-## 2026_10_18_早上
+## 2026_10_08_早上
 https://youtube.com/live/kvInhKABck8
 
 
-## 2026_10_18_下午
+## 2026_10_08_下午
 https://www.youtube.com/watch?v=HQVIe7L1Xfk
+
+---
+
+## 2026_10_13_早上
+https://www.youtube.com/watch?v=ho3qpF1LEBM
 
 ---
