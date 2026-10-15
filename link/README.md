@@ -14,3 +14,8 @@ https://www.youtube.com/watch?v=ho3qpF1LEBM
 https://www.youtube.com/watch?v=MFD5M_hytp0
 
 ---
+
+## 2026_10_15_早上
+https://www.youtube.com/watch?v=h3zZoHOdcbI
+
+---
