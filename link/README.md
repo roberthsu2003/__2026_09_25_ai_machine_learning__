@@ -26,4 +26,7 @@ https://www.youtube.com/watch?v=HDo1v6Pafko
 ## 2026_10_19_早上
 https://www.youtube.com/watch?v=O2RzuDjurl0
 
+## 2026_10_19_下午
+https://www.youtube.com/watch?v=-UdWNaeNpow
+
 ---
